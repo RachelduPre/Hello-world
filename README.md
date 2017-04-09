@@ -1,0 +1,2 @@
+# Hello-world
+I am aFarmer who does voluntary work at the Gubbio Observatory and am occasionalvisiting lecturer at UCL and Cairoon sib atomic particles which sees me also work with CERN using several feeder accelerators to Hedron.  My degrees are in astrochemistry and law, my doctorate was in Islamic studies but I am a simple farmer first and foremost. My area of expertise is the mathematics of simulation with a big breakthrough when I was 16   
